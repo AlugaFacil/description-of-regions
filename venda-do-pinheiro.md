@@ -22,4 +22,4 @@ A comunidade valoriza a educação, contando com várias instituições de ensin
 
 **Conclusão**
 
-A Venda do Pinheiro destaca-se como uma vila acolhedora e dinâmica, onde a história se entrelaça com a modernidade. A combinação de uma localização privilegiada, infraestruturas de qualidade, ambiente tranquilo e proximidade a Lisboa fazem desta vila um local ideal para viver.
+A Venda do Pinheiro destaca-se como uma vila acolhedora e dinâmica, onde a história se entrelaça com a modernidade. A combinação de uma localização privilegiada, infraestruturas de qualidade, ambiente tranquilo e proximidade a Lisboa fazem desta vila um local ideal para viver.
